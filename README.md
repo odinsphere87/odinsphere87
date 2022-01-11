@@ -74,7 +74,7 @@
 
     and much much more!, 
     
-    CompTIA Netowork+ (N10-008)
+    CompTIA Network+ (N10-008)
     
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
